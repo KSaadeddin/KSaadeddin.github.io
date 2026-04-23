@@ -1,4 +1,3 @@
-Privacy Policy
 ECS Gaming built the Marbles game as a Commercial game. This SERVICE is provided by ECS Gaming and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
